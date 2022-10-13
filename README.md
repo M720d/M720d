@@ -8,7 +8,7 @@ Here are some ideas to get you started:aldkjfa
 - 🔭 I’m currently working on ...dlkfjadlfd
 - 🌱 I’m currently learning ...09..
 - 👯 I’m looking to collaborate on ...fffkldgslkgfjdlkgadkfnakjd
-- 🤔 I’m looking for help with ...lerjf 
+- 🤔 I’m looking for help with ...lerjf ldskfjdlsakf
 - 💬 Ask me about ....
 - 📫 How to reach me: ....,.
 - 😄 Pronouns: ...

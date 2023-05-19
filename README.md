@@ -17,7 +17,7 @@ Here are some ideas to get you started:aldkjfa
 -->
 
 ### My name is Dev Salvi
-#Oracle Redbull Racing
+
 
 <!-- daiofjdiof -->
 <!-- dghdghdgh -->
